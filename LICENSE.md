@@ -1,4 +1,4 @@
-# 
+# premium nft trading bot | trait-analysis + volume-analysis offers the most advanced nft trading bot, with trait-analysis and volume-analysis. Ideal for professional NFT traders
 
 
 
